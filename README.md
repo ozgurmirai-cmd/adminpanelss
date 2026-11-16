@@ -1,1 +1,1 @@
-# adminpanelss
+KARDEŞİM AL SANA BELES ADMŞİN
